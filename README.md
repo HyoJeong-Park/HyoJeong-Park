@@ -6,7 +6,7 @@
 
   <br />
 
-  [Blog](https://velog.io/@parkhj3003)
+  Please come once! → [Blog](https://velog.io/@parkhj3003)
 
   <br />
   
